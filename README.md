@@ -31,4 +31,4 @@ I professori che vi guideranno in questa avventura:
 Prof. Palladino Marco
 Prof. Palitto Matteo
 
-by Palitto Matteo
+by Simone Romano
